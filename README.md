@@ -1,1 +1,1 @@
-I just hate what you call “Artificial Intelligence” as it is really more “What we want you to read and believe”. 
+I just hate what you call “<em style="font-family:fantasy;">Artificial Intelligence</em>” as it is really more “<i>What we want you to read and believe</i>” and it stays “<i><b>Potential Bullshit</b></i>”.
